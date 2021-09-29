@@ -1,1 +1,1 @@
-# CongMinhBird
+Công Minh Bay bản quyền của DAZKIT
